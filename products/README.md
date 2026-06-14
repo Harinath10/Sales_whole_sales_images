@@ -1,1 +1,0 @@
-Product images live here.
